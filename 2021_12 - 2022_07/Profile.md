@@ -9,7 +9,7 @@
 
 1.3 Registration Number: BS075665 
 
-## Summary of recent work/Practice 
+## Summary of recent work/practice 
 
 This is my first Continuous Professional Development (CPD) profile, starts from Winter 2021. 
 
